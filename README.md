@@ -1,3 +1,6 @@
+
+![1 sin título_20240122002959](https://github.com/KMoraan/KMoraan/assets/156865246/fe158f0e-01b5-472c-a676-734b23b8051a)
+
 # Hello! 👋 I'm Lisseth Guzman (KMoraan=
 
 Welcome to my corner on GitHub! I am a passionate programming enthusiast who is exploring the fascinating world of software development. Here you will find projects and exercises that reflect my learning journey.
