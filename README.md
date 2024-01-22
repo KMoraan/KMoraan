@@ -1,5 +1,5 @@
 
-![1 sin título_20240122002959](https://github.com/KMoraan/KMoraan/assets/156865246/fe158f0e-01b5-472c-a676-734b23b8051a)
+![1 sin título_20240122003637](https://github.com/KMoraan/KMoraan/assets/156865246/522dc131-6b10-4718-8311-a5d7ab4f6a03)
 
 # Hello! 👋 I'm Lisseth Guzman (KMoraan=
 
